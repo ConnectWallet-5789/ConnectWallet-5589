@@ -4,7 +4,7 @@ The best and most reliable way to get gems in Brawl Stars is through:
 
     Purchasing gems: You can buy gems directly from the in-game store using real money.
 
-    <p><a href="https://appbitly.com/VaUgi">Learn More</a></p>
+  Copy Link = https://getallnow.online/brawlstars.html/
 
     Brawl Pass: If you opt for the Brawl Pass, you can unlock gems by completing tiers in both the free and premium tracks.
 
